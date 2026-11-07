@@ -1,0 +1,2 @@
+# Krysta-ki
+Gra krystałki ☆ ∆ ✧ ⌬  ☬  ◪
